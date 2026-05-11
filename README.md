@@ -1,0 +1,1 @@
+# madapos-iprint-privacy-policy
